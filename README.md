@@ -23,7 +23,7 @@ For more details about my professional background, feel free to visit my LinkedI
 I am currently based in the Philippines and am available to start immediately upon confirmation.
 
 ## Contact
-If you have any further questions or require additional information, please do not hesitate to reach out to me. You can contact me via email at [benjamin@example.com](mailto:benjamin@example.com).
+If you have any further questions or require additional information, please do not hesitate to reach out to me. You can contact me via email at [admin@benjoco.com](mailto:admin@benjoco.com).
 
 Thank you for considering my application. I look forward to the possibility of working together!
 
